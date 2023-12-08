@@ -1,7 +1,7 @@
 # glezymiel.github.io
 Glecy Miel M. Castro
 # Spy x Family
-![Spy x Family](https://www.google.com/url?sa=i&url=https%3A%2F%2Fm.economictimes.com%2Fnews%2Finternational%2Fus%2Fspy-x-family-season-2-episode-5-release-date-time-and-all-you-need-to-know%2Farticleshow%2F104787937.cms&psig=AOvVaw2Si7Bomp3VM-tngv8xAQK-&ust=1701911047147000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCNDk973Q-YIDFQAAAAAdAAAAABAe)
+![Spy x Family](https://images.app.goo.gl/Z1qdG2LwU4vfedhM7)
 
 Spy × Family (stylized as SPY×FAMILY and pronounced "spy family") is a Japanese anime television series based on the manga series of the same name by Tatsuya Endo. It broadcasts on TV Tokyo in Japan. The series has been licensed by Crunchyroll in North America, while it is distributed by Muse Communication in South and Southeast Asia.
 
